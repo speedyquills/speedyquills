@@ -6,3 +6,6 @@ STH　SONIC . EXE　EMH & MH　SRU : AI　GRACE ( ROBLOX )　DSAF　&　CHACHA�
 
 BIGGEST SCOURGE FAN TO EXIST　-　NMI & SCOURGE SMOOCHER　-　02/12/07 <- BDAY
 
+me   and    my    wife
+
+![](https://files.catbox.moe/rh54uo.png)
